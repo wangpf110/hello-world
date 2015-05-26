@@ -1,4 +1,5 @@
 # hello-world
 Just another repository!!!!
 
-HIHIHIHIHIHIHIIHIHIHIHIHIH YESYRSYRYSRYSYRYSREYYRYSYRYSRY
+
+我也是醉了！
